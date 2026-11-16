@@ -1,0 +1,1 @@
+# vsv-newsletter-assets
